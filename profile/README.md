@@ -1,4 +1,4 @@
-# **Notta AI Promo Code - 90% Off (Exclusive June 2024 Deal)**
+# **Notta AI Promo Code - 90% Off (Exclusive 2025 Deal)**
 
 🔥 **HOT DEAL ALERT**: We've found an **exclusive 85% discount** for Notta AI, one of the best AI meeting assistants and transcription tools available today. This special offer is only available through our verified link:
 
